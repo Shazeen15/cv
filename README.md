@@ -1,6 +1,6 @@
 # Shazeen Fabius
 ### 786-506-4435
-#### shazeenfabius@gmail.com
+#### [Email](shazeenfabius@gmail.com)
 #### [LinkedIN](linkedin.com/in/shazeen-fabius)
 #### [GitHub](github.com/Shazeen15)
 #### [Portfolio](https://sfportfolio.shazeen15.vercel.app/)
